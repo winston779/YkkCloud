@@ -1,6 +1,6 @@
 # YkkCloud机场官网地址
 
-最新地址：[ykkk.best](https://d2nc7bsa.ykkk.best/#/register?code=R2rjTLv7)
+最新地址：[ykkk.best](https://panel.ykkk.best/#/register?code=R2rjTLv7)
 
 ## YkkCloud介绍
 
